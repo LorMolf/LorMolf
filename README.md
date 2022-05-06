@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LorMolf
 
 - 🌱 I’m currently learning Artificial Intelligence
-- 📫 How to reach me: via mail at lorenzo.molfetta9@gmail.com
+- 📫 How to reach me: via email at lorenzo.molfetta9@gmail.com
 
 Nina
 
